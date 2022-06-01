@@ -1,3 +1,3 @@
 # RESUME2022
-# PASSWORD: marksandomenoresume2022
-         marksandomeno + resume + 2022
+# PASSWORD to download email: marksando11@gmail.com 
+         
